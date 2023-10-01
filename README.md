@@ -11,5 +11,5 @@ Advanced SQL queries led to significant cost savings and reduced overhead.
 
 Let's connect to discuss how I can contribute to your data-driven initiatives.
 
-Thanks for taking the time to view my profile. For more details please feel free to connect at:
+Thanks for taking the time to view my profile. For more details, please feel free to connect at:
 ajinkyasj99@gmail.com | axj210065@utdallas.edu
