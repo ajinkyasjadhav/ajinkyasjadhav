@@ -1,4 +1,4 @@
-# Howdy..! 
+# Hello..! 
 I am a Master's student at The University of Texas at Dallas pursuing a Master of Science in Information Technology and Management.
 My impetus to learn new things and meet new people has brought me all the way to the US, the land of opportunities and connections for a lifetime.
 
